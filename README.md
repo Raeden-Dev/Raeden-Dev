@@ -1,4 +1,4 @@
-Hey! I'm Sadman 🌀
+## Hey! I'm Sadman 🌀
 
 💻 Computer Science and Engineering Student<br/>
 🧰 Freelance Pixel Artist & Low-Poly 3D Artist<br/>
